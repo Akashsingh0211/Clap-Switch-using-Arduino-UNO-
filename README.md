@@ -1,4 +1,4 @@
-![Uploading Screenshot (8285).png…]()
+"C:\Users\Akash singh\OneDrive\Pictures\Screenshots\Screenshot (8285).png"
  
 
 
